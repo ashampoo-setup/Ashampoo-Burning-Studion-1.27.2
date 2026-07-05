@@ -1,0 +1,1 @@
+# Ashampoo-Burning-Studion-1.27.2
